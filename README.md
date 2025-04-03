@@ -1,3 +1,0 @@
-# SuyashMarathe
-
-Hi there
